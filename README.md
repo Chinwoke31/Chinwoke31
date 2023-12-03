@@ -1,2 +1,2 @@
-# purity
-Cybersecurity Professional, YouTuber
+# Chinwoke31
+Cybersecurity Enthusiast | Pentesting Enthusiast | YouTuber
